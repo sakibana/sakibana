@@ -1,7 +1,7 @@
 Always open for a new position, Hybrid or remote, as PM or PMO
 ハイブリッドでかリモートで、PMまたはPMOとしての案件を探しております。
 I'm convinced that I'll be the best candidate for the PM/PMO role. Based on my previous experience, I am capable of working under pressure.
-I am constantly looking for new ideas and methods to differentiate my work from that of others. As an engineer, I have no problem handling any form of Hardware or Software after self-training.
+I am constantly looking for new ideas and methods to differentiate my work from that of others. As an engineer, I have no problem handling any form of hardware or software after self-training.
 I am also an inventor, a quick learner, and a hard worker. Always seek new ways to help the organization thrive while making my job more interesting.
 I've handled projects in a variety of industries, including information technology, automotive, semiconductor, and medical.
 In addition, in order to enhance and preserve my current skills. I regularly participate in online training and tutorials.
